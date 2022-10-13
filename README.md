@@ -1,0 +1,1 @@
+# fignya.uz
